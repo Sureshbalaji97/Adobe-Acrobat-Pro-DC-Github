@@ -1,4 +1,4 @@
-# 🎨 **crack Acrobat Pro DC Download** | **Adobe Acrobat 2025 Pre-Activated** 🧑‍🎨✨
+# 📄 **crack Acrobat Pro DC Download** | **Adobe Acrobat 2025 Pre-Activated** 🔐🧾
 
 <div align='center'>
 <img src="https://imag.malavida.com/mvimgbig/download-fs/adobe-acrobat-professional-543-1.jpg"/>
